@@ -7,6 +7,7 @@ gosto de jogar e tenho um sonho de compar o novo console da nintendo
 
 ![download](https://github.com/MINGUSLI/MINGUSLI/assets/137064324/2d8bd060-2236-44b8-9acf-fdff9858a878)
 ![62a](https://github.com/MINGUSLI/MINGUSLI/assets/137064324/3785e1f1-425a-43c6-80d6-a523222d522e)
+![271960160-2d8bd060-2236-44b8-9acf-fdff9858a878](https://github.com/MINGUSLI/MINGUSLI/assets/137064324/c02ef792-ff59-48c7-9614-0d4094025fbf)
 
 ![pokemon-pokemon-scarlet-and-violet](https://github.com/MINGUSLI/MINGUSLI/assets/137064324/5176ad92-13a5-4b14-9e57-6ed84be797d1)
 ![pokemon-scarlet](https://github.com/MINGUSLI/MINGUSLI/assets/137064324/444c8337-ab6d-4c2f-b05f-e291164d5914)
